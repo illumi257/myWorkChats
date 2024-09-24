@@ -8494,7 +8494,7 @@ Operation: Luzon 1
 Division: 28
 Region: 79
 Area: Benguet 2
-Branch: B1764 La Trinidad 2
+Branch: B16\ La Trinidad 2
 MFO 2
 
 Thank you.
@@ -11276,7 +11276,7 @@ Operation: Luzon 1
 Division: 28
 Region: 79
 Area: Benguet 2
-Branch: B1764 La Trinidad 2
+Branch: B1674 La Trinidad 2
 MFO 3
 
 Thank you.
@@ -11651,7 +11651,7 @@ Operation: Luzon 1
 Division: 28
 Region: 79
 Area: Benguet 2
-Branch: B1764 La Trinidad 2
+Branch: B1674 La Trinidad 2
 MFO 3
 
 Thank you.

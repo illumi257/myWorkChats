@@ -11729,39 +11729,6 @@ Branch: B1674 La Trinidad 2
 
 Thank you.
 
-You replied to Christopher De Guzman
-Yesterday at 8:36 PM
-nasa 1674 ka na po sir..
-Christopher De Guzman
-Yesterday at 8:44 PM
-Christopher De Guzman
-thanks sir
-Joe Pacz P. Aldeosa
-Yesterday at 8:46 PM
-Joe Pacz P. Aldeosa
-Good Day Ma'am/Sir, 
-
-Subject: Request to Re-Open CAMS-DCS for September 23, 2024
-Op'n-Div-Reg: Luzon 1/Division 28/Region 79
-Code: B0792 
-Branch Name: Baguio City II 
-Area: Benguet 1 
-
-Type of Adjustment: 
-* Re-Open of CAMS-DCS
-
-Reason: FT B2B, Bank Deposit Not Transacted
-Date of Wrong transaction:   September 23, 2024
-Transacted by: Joe Pacz P. Aldeosa 
-
-Date Request: September 23, 2024
-Time of Request: 8:36pm
-Requested by: Loida Galate 
-Recommended by: Joe Pacz Aldeosa 
-Designation: AA
-
-Thank you.
-
 7:12 AM
 Honey Leah Tejano
 Today at 7:12 AM

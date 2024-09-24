@@ -18,6 +18,7 @@ MFO4
 
 
 Thank you.
+
 Kristine Geraldez
 August 4
 Kristine Geraldez
@@ -37,6 +38,7 @@ MFO1
 
 
 Thank you.
+
 Aug 4, 2024, 6:23 PM
 Ariel Collado
 August 4
@@ -56,6 +58,7 @@ Area: Mt.province 3
 Branch: B1584 Cervantes Quirino Outpost (mfo6)
 
 Thank you.
+
 Erwin Madayag
 August 4
 Erwin Madayag
@@ -75,6 +78,7 @@ BM
 
 
 Thank you.
+
 Erwin Madayag replied to themself
 August 4
 Erwin Madayag
@@ -103,6 +107,7 @@ AP (Payroll): 0
 Reason: Reshuffle of Staff
 
 Thank you.
+
 Aug 4, 2024, 7:00 PM
 Preselyn Ragunton
 August 4
@@ -123,6 +128,7 @@ Branch:  B1585 Mankayan
 MFO:3
 
 Thank you.
+
 Ronie Gaen
 August 4
 Ronie Gaen
@@ -142,6 +148,7 @@ Branch: B0460 Bontoc
 MFO1
 
 Thank you.
+
 Erwin Madayag
 August 4
 Good Evening Maam/Sir,
@@ -160,6 +167,7 @@ Branch: B0861 Sto. Tomas
 MFO4
 
 Thank you.
+
 ErwinAugust 4
 Erwin Madayag
 Good Evening Maam/Sir,
@@ -178,6 +186,7 @@ Branch: B0861 Sto. Tomas
 MFO2
 
 Thank you.
+
 Ruby Pigao
 August 4
 Ruby Pigao
@@ -213,6 +222,7 @@ AP (Payroll): 0
 Reason: Reshuffle of Staff
 
 Thank you.
+
 Fidel Oriente
 August 4
 Fidel Oriente
@@ -232,6 +242,7 @@ BM
 
 
 Thank you.
+
 Aug 4, 2024, 10:15 PM
 Mary Zapata
 August 4
@@ -251,6 +262,7 @@ Branch: B0511 luna
 
 
 Thank you.
+
 Aug 5, 2024, 6:59 AM
 Ernesto Macasieb
 August 5
@@ -271,6 +283,7 @@ MFO4
 
 
 Thank you.
+
 Mary Cabansag
 August 5
 Mary Cabansag
@@ -290,6 +303,7 @@ Branch: B0295 La Trinidad I
 MFO2
 
 Thank you.
+
 Jefferson Rarang
 August 5
 Jefferson Rarang
@@ -309,6 +323,7 @@ Branch: B1187 Baguio City III
 MFO1
 
 Thank you.
+
 Aug 5, 2024, 7:42 AM
 Vilmer Magara
 August 5
@@ -329,6 +344,7 @@ Branch: B0481 Bauko ( Outpost II)
 MFO2
 
 Thank you.
+
 Jamaica Rabor
 August 5
 Jamaica Rabor
@@ -348,6 +364,7 @@ Branch: B0296 Baguio City I
 MFO4
 
 Thank you.
+
 Ricky Desucatan added you to the group.
 Jim Balicao
 August 5
@@ -368,6 +385,7 @@ MFO 2
 
 
 Thank you.
+
 Ricky Desucatan
 August 5
 Ricky Desucatan
@@ -375,7 +393,8 @@ Good day po Maam /Sir @everyone                                                 
 
 Buenaventura Alabab Jr.
 
-thank you.
+Thank you.
+
 Aug 5, 2024, 9:57 AM
 Jefferson Rarang
 August 5
@@ -398,6 +417,7 @@ Branch: B1187 Baguio City III
 MFO1
 
 Thank you.
+
 Aug 5, 2024, 10:51 AM
 Erwin Madayag
 August 5
@@ -418,6 +438,7 @@ BM
 
 
 Thank you.
+
 Ernesto Macasieb
 August 5
 Ernesto Macasieb
@@ -437,6 +458,7 @@ MFO4
 
 
 Thank you.
+
 Angelica Galinto
 August 5
 Angelica Galinto
@@ -465,10 +487,12 @@ AP (Payroll): 0
 Reason: Reshuffle of Staff
 
 Thank you.
+
 Ariel Collado replied to themself
 August 5
 Ariel Collado
-Good afternoon sir @Buenaventura L. Alabab Jr.  Follow up ko  po sana dto sir thank you.
+Good afternoon sir @Buenaventura L. Alabab Jr.  Follow up ko  po sana dto sir Thank you.
+
 Rowell Aglugob
 August 5
 Rowell Aglugob
@@ -488,6 +512,7 @@ MFO2
 
 
 Thank you.
+
 Fidel Oriente
 August 5
 Fidel Oriente
@@ -507,6 +532,7 @@ BM
 
 
 Thank you.
+
 Kristine Geraldez
 August 5
 Kristine Geraldez
@@ -526,6 +552,7 @@ MFO1
 
 
 Thank you.
+
 Aug 5, 2024, 11:25 AM
 You replied to Erwin Madayag
 August 5
@@ -550,6 +577,7 @@ MFO4
 
 
 Thank you.
+
 Aug 5, 2024, 11:51 AM
 Mary Cabansag
 August 5
@@ -571,6 +599,7 @@ Branch: B0295 La Trinidad I
 MFO2
 
 Thank you.
+
 Mary Cabansag
 August 5
 Mary Cabansag
@@ -590,6 +619,7 @@ Branch:  B0295 La Trinidad I
 MFO:3
 
 Thank you.
+
 Ronie Gaen
 August 5
 Ronie Gaen
@@ -619,15 +649,18 @@ Special Advance: 0
 Accounts Payable/Payroll: 0
 
 Thank you.
+
 Aug 5, 2024, 12:26 PM
 Vilmer Magara replied to themself
 August 5
 Vilmer Magara
-Goodafternoon po sir @Buenaventura L. Alabab Jr. Follow up ko lng po sana ito thank you.
+Goodafternoon po sir @Buenaventura L. Alabab Jr. Follow up ko lng po sana ito Thank you.
+
 Catherine Balingao replied to themself
 August 5
 Catherine Balingao
-Goodafternoon po sir @Buenaventura L. Alabab Jr. Follow up ko lng po sana ito thank you.
+Goodafternoon po sir @Buenaventura L. Alabab Jr. Follow up ko lng po sana ito Thank you.
+
 You replied to Mary Zapata
 August 5
 ok na po ito
@@ -641,6 +674,7 @@ Good afternoon sir
 @Buenaventura L. Alabab Jr. 
 Follow up ko lang Sana ito sir
 Thank you.
+
 Aug 5, 2024, 1:13 PM
 Vilmer Magara replied to themself
 August 5
@@ -665,6 +699,7 @@ Branch: B0401 Buguias
 AA
 
 Thank you.
+
 You replied to Fidel Oriente
 August 5
 ok na po ito
@@ -688,6 +723,7 @@ Branch: B0296 Baguio City I
 MFO4
 
 Thank you.
+
 You sent
 August 5
 You joined the call.
@@ -717,6 +753,7 @@ Branch: B0460 Bontoc
 AA
 
 Thank you.
+
 John Creschel Leoro
 August 5
 John Creschel Leoro
@@ -769,6 +806,7 @@ MFO 2
 
 
 Thank you.
+
 Jim Balicao
 August 5
 Jim Balicao
@@ -798,6 +836,7 @@ Special  Advance: 0
 1st Half Salary: 0
 
 Thank you.
+
 Mary Cabansag replied to themself
 August 5
 Mary Cabansag
@@ -826,6 +865,7 @@ Special  Advance: 0
 1st Half Salary: 0
 
 Thank you.
+
 Aug 5, 2024, 2:35 PM
 You replied to Ronie Gaen
 August 5
@@ -859,6 +899,7 @@ Special  Advance: 0
 1st Half Salary: 0
 
 Thank you.
+
 You replied to Catherine Balingao
 August 5
 ok na po ito..
@@ -889,6 +930,7 @@ MFO1
 
 
 Thank you.
+
 Aug 5, 2024, 4:43 PM
 You replied to Adora Bulaon
 August 5
@@ -950,6 +992,7 @@ Requested by : Aiza B. Ebro
 Requested date : 8-5-2024
 
 Thank you.
+
 Aug 5, 2024, 5:43 PM
 Freddie Aloot
 August 5
@@ -1000,6 +1043,7 @@ Requested by : Aiza B. Ebro
 Requested date : 8-5-2024
 
 Thank you.
+
 Aug 5, 2024, 6:16 PM
 Freddie Aloot
 August 5
@@ -1066,6 +1110,7 @@ Requested Date:08-05-2024
 Recommended By:Lencer Selec(AA) 
 
 Thank you.
+
 Aug 5, 2024, 8:27 PM
 Adora Bulaon added Francis Sotelo to the group.
 Francis Sotelo
@@ -1107,6 +1152,7 @@ Branch: B0460 Bontoc
 AA
 
 Thank you.
+
 Aug 6, 2024, 7:20 AM
 Ernesto Macasieb
 August 6
@@ -1135,6 +1181,7 @@ Special  Advance: 0
 1st Half Salary: 
 
 Thank you.
+
 Kristine Geraldez
 August 6
 Kristine Geraldez
@@ -1154,6 +1201,7 @@ MFO3
 
 
 Thank you.
+
 Preselyn Ragunton
 August 6
 Preselyn Ragunton
@@ -1173,10 +1221,12 @@ Branch:  B1585 Mankayan
 MFO:3
 
 Thank you.
+
 Ernesto Macasieb replied to themself
 August 6
 Ernesto Macasieb
 Good morning sir @Buenaventura L. Alabab Jr. , ifollow up ko nga po ito. Thank you.
+
 Ronalyn Dumacyon
 August 6
 Ronalyn Dumacyon
@@ -1195,6 +1245,7 @@ Branch:  B0519 Aringay
 MFO:4
 
 Thank you.
+
 Aug 6, 2024, 9:14 AM
 You replied to Ronalyn Dumacyon
 August 6
@@ -1246,6 +1297,7 @@ Special  Advance: 0
 1st Half Salary: 0
 
 Thank you.
+
 Mark Joseph De Vera
 August 6
 Mark Joseph De Vera
@@ -1264,6 +1316,7 @@ Branch:  B1674 La Trinidad 2
 MFO:1
 
 Thank you.
+
 You replied to Mark Joseph De Vera
 August 6
 ..ok na po ito..
@@ -1312,6 +1365,7 @@ Correct Data:
 Requested By:Jamaica Rabor
 Requested Date:08/06/2024
 Thank you.
+
 Edward Domingo
 August 6
 Edward Domingo
@@ -1341,6 +1395,7 @@ Correct Data: micro-business balance - 18,000
 Requested By:Jamaica Rabor
 Requested Date:08/06/2024
 Thank you.
+
 Edward Domingo
 August 6
 Edward Domingo
@@ -1352,6 +1407,7 @@ B0296 Baguio City I - due to variance on Dashboard VS. FIS
 
 
 Thank you.
+
 Aug 6, 2024, 2:32 PM
 Edward Domingo
 August 6
@@ -1384,6 +1440,7 @@ Request By: - Aira C. Salazar
 Recommended By: - Edward R. Domingo
 
 Thank you.
+
 Edward Domingo
 August 6
 Edward Domingo
@@ -1399,6 +1456,7 @@ Client's LCBU: -10
 Loan Receivables ( Microbusiness) : 1500
 
 Thank you.
+
 Adora Bulaon
 August 6
 Adora Bulaon
@@ -1437,6 +1495,7 @@ Recommended By: Edward R. Domingo
 Requested Date:08/06/2024
 
 Thank you.
+
 Aug 6, 2024, 4:15 PM
 You replied to Edward Domingo
 August 6
@@ -1480,6 +1539,7 @@ Recommended By: Edward R. Domingo
 Requested Date:08/06/2024
 
 Thank you.
+
 Aug 7, 2024, 6:42 AM
 Edward Domingo
 August 7
@@ -1499,6 +1559,7 @@ Date Request:  8/7/2024
 Requested by: Christopher De Guzman 
 
 Thank you.
+
 Aug 7, 2024, 11:43 AM
 Lencer Selec
 August 7
@@ -1518,6 +1579,7 @@ Date Request:  8/7/2024
 Requested by: Lencer Selec (AA) 
 
 Thank you.
+
 Aug 7, 2024, 7:08 PM
 Freddie Aloot
 August 7
@@ -1557,6 +1619,7 @@ Correct Data:
 Requested By: Novemeir N. Ebro
 Requested Date:08-07-2024
 Thank you.
+
 Aug 8, 2024, 5:24 AM
 Adora Bulaon
 August 8
@@ -1578,6 +1641,7 @@ MFO4
 
 
 Thank you.
+
 Aug 8, 2024, 5:46 AM
 Jeron Abayon
 August 8
@@ -1605,6 +1669,7 @@ Branch:  B0295 La Trinidad I
 MFO:3
 
 Thank you.
+
 Aug 8, 2024, 7:34 AM
 Mark Bergado
 August 8
@@ -1619,6 +1684,7 @@ August 8
 Novemeir Ebro
 Good morning sir,
 Follow up po. Thank you.
+
 Aug 8, 2024, 12:46 PM
 Vilmer Magara
 August 8
@@ -1822,6 +1888,7 @@ Requested Date:08-08-2024
 Recommended By:Jerwin Baquiran(AA) 
 
 Thank you.
+
 Aug 8, 2024, 6:23 PM
 Andy Palino
 August 8
@@ -1851,6 +1918,7 @@ Branch:  B0296 Baguio City  I
 MFO:4
 
 Thank you.
+
 You sent
 August 8
 ..sige ma'am..gawan ko lang po ng account..
@@ -1888,6 +1956,7 @@ Time requested: 9:20 pm
 Requested by: Catherine Balingao (BM)
 
 Thank you.
+
 You replied to Jamaica Rabor
 August 8
 ..ok na po ito..
@@ -1914,6 +1983,7 @@ Branch:  B0792 Baguio City  2(Mother)
 MFO:2
 
 Thank you.
+
 You replied to Edward Domingo
 August 8
 ..pakigawan po incident report ito..
@@ -1962,6 +2032,7 @@ Recommended by : Marilou Rebebes
 Designation: AA
 
 Thank you.
+
 Ronald Cuarez
 August 8
 Ronald Cuarez
@@ -1996,6 +2067,7 @@ Time requested: 10:40 pm
 Requested by: Elizabeth Dacanay (BM)
 
 Thank you.
+
 Aug 9, 2024, 9:35 AM
 You replied to Ronald Cuarez
 August 9
@@ -2032,6 +2104,7 @@ Branch:  B0792 Baguio City  2(Tuba Outpost)
 MFO:1
 
 Thank you.
+
 You replied to Jonalaine Canayon
 August 9
 ok na po
@@ -2074,6 +2147,7 @@ time requested: 3:50 pm
 requested by: Novemeir N. Ebro( AA)
 
 Thank you.
+
 Aug 9, 2024, 4:59 PM
 You replied to Freddie Aloot
 August 9
@@ -2147,6 +2221,7 @@ Branch:  B1585 Mankayan
 MFO:4
 
 Thank you.
+
 Aug 12, 2024, 6:19 AM
 Rowell Aglugob
 August 12
@@ -2167,6 +2242,7 @@ Branch:  B1750 Bokod
 MFO:1
 
 Thank you.
+
 Jonalaine Canayon
 August 12
 Jonalaine Canayon
@@ -2186,6 +2262,7 @@ Branch:  B0792 Baguio City  2(Tuba Outpost)
 MFO:2
 
 Thank you.
+
 Jefferson Rarang
 August 12
 Jefferson Rarang
@@ -2207,6 +2284,7 @@ Branch: B1187 Baguio City III
 MFO1
 
 Thank you.
+
 Adora Bulaon
 August 12
 Adora Bulaon
@@ -2226,6 +2304,7 @@ MFO4
 
 
 Thank you.
+
 Jessica Tinay
 August 12
 Jessica Tinay
@@ -2245,6 +2324,7 @@ MFO1
 
 
 Thank you.
+
 Mary Zapata
 August 12
 Mary Zapata
@@ -2268,6 +2348,7 @@ MFO1
 
 
 Thank you.
+
 Mary Zapata
 August 12
 Mary Zapata
@@ -2287,6 +2368,7 @@ MFO2
 
 
 Thank you.
+
 Catherine Balingao
 August 12
 Catherine Balingao
@@ -2306,6 +2388,7 @@ Branch:  B1680 Baguio City V
 MFO:4
 
 Thank you.
+
 Loida Galate
 August 12
 Loida Galate
@@ -2325,6 +2408,7 @@ Branch:  B1652 Baguio City II(Mother)
 MFO:2
 
 Thank you.
+
 Honey Leah Tejano
 August 12
 Honey Leah Tejano
@@ -2344,6 +2428,7 @@ MFO3
 
 
 Thank you.
+
 Aug 12, 2024, 7:46 AM
 Jim Balicao
 August 12
@@ -2364,6 +2449,7 @@ MFO 2
 
 
 Thank you.
+
 Preselyn Ragunton
 August 12
 Preselyn Ragunton
@@ -2385,6 +2471,7 @@ Branch: B1585 Mankayan
 MFO4
 
 Thank you.
+
 Preselyn Ragunton
 August 12
 Preselyn Ragunton
@@ -2404,6 +2491,7 @@ Branch: B1585 Mankayan
 MFO1
 
 Thank you.
+
 Aug 12, 2024, 8:18 AM
 Mark Joseph De Vera
 August 12
@@ -2423,6 +2511,7 @@ Branch:  B1674 La Trinidad 2
 MFO:1
 
 Thank you.
+
 Aug 12, 2024, 9:06 AM
 Joe Pacz P. Aldeosa
 August 12
@@ -2584,6 +2673,7 @@ Branch: B0634 Bangar
 MFO2
 
 Thank you.
+
 You replied to Racer Camitog
 August 12
 ok na po ma'am..logout login na lang po
@@ -2621,6 +2711,7 @@ Branch: B1585 Mankayan
 MFO1
 
 Thank you.
+
 Vilmer Magara
 August 12
 Vilmer Magara
@@ -2709,6 +2800,7 @@ Requested Date:08-12-2024
 Recommended By:Hazel Anecang(AA) 
 
 Thank you.
+
 You sent
 August 12
 pagawan po ma'am ng incident report..salamat po..kahit dito na lang po
@@ -2759,6 +2851,7 @@ Requested date: August 12, 2024
 
 
 Thank you.
+
 Aug 12, 2024, 4:23 PM
 You sent
 August 12
@@ -2796,6 +2889,7 @@ MFO 3
 
 
 Thank you.
+
 Aug 13, 2024, 6:57 AM
 Honey Leah Tejano
 August 13
@@ -2815,6 +2909,7 @@ MFO3
 
 
 Thank you.
+
 Honey Leah TejanoAugust 13
 Honey Leah Tejano
 Good morning po sir
@@ -2833,6 +2928,7 @@ BM Access
 
 
 Thank you.
+
 You sent
 August 13
 ok na po ma'am @Honey Leah Tejano
@@ -2862,6 +2958,7 @@ MFO 3
 
 
 Thank you.
+
 You replied to Mark Barlongo
 August 13
 Done na po. Remind lang po. Since na-change po ang role as BM to MFO..wala po kayong access sa cams..
@@ -2921,6 +3018,7 @@ Branch:  B0792 Baguio City  2(Mother)
 MFO:2
 
 Thank you.
+
 You replied to Loida Galate
 August 14
 ..done po..good morning
@@ -2947,6 +3045,7 @@ Branch:  B0792 Baguio City  2(Tuba Outpost)
 MFO:2
 
 Thank you.
+
 You replied to Jonalaine Canayon
 August 14
 .done po
@@ -2973,6 +3072,7 @@ Branch:  B0511 Luna
 MFO:2
 
 Thank you.
+
 Raymart Gandeza
 August 14
 Raymart Gandeza
@@ -2991,6 +3091,7 @@ Branch:  B0224 Bauang
 MFO:1
 
 Thank you.
+
 Loida Galate
 August 14
 Good morning po sir hindi po makalog in ung staff ko sir nag Palit kasi Siya ng phone. Ganito po nagpapakita.. Salamat
@@ -3073,6 +3174,7 @@ Correct Data: Slot 26, Peach
 
 
 Thank you.
+
 Aug 14, 2024, 2:13 PM
 Freddie Aloot
 August 14
@@ -3092,6 +3194,7 @@ Correct Data: Slot 26, Peach
 
 
 Thank you.
+
 Aug 14, 2024, 3:27 PM
 Ronald Cuarez
 August 14
@@ -3200,6 +3303,7 @@ Requested Date:08-14-2024
 Recommended By:Jerwin Baquiran(AA) 
 
 Thank you.
+
 You sent
 August 14
 good afternoon po. wait lang po sa mga adjustments. naga install lang po cctv. salamat po
@@ -3392,6 +3496,7 @@ Branch:  B1750 Bokod
 MFO:1
 
 Thank you.
+
 You replied to Rowell Aglugob
 August 15
 ..done po..
@@ -3459,6 +3564,7 @@ Requested Date:08-15-2024
 Recommended By:Novemeir N. Ebro(AA) 
 
 Thank you.
+
 Aug 15, 2024, 1:11 PM
 You replied to Benjie Blancaflor
 August 15
@@ -3471,7 +3577,8 @@ Vilmer Magara
 Goodafternoon po sir .. concern ko lang po B0481 Bauko(outpost II) MFO2 Nakailang log-out at refresh na po kasi ako .No clients found parin po nagpapakita .Salamat
 You replied to Vilmer Magara
 August 15
-concern forwarded to DevTeam sir.. thank you..
+concern forwarded to DevTeam sir.. Thank you.
+.
 Jim Balicao
 August 15
 Good afternoon sir @Buenaventura L. Alabab Jr. concern ko lng Po B0845 Kapangan ayaw Po mag-uplod both MFO 2 and Mfo 3 po.thank you
@@ -3484,7 +3591,8 @@ You sentAugust 15
 Jim Balicao
 August 15
 Jim Balicao
-Ayy Sige sir..thank you.
+Ayy Sige sir..Thank you.
+
 You sent
 August 15
 .paopen mo po sa AA mo sir..naka MFO ka po..
@@ -3565,6 +3673,7 @@ Branch:  B1754 Sabangan
 MFO:4
 
 Thank you.
+
 Aug 18, 2024, 7:34 PM
 Preselyn Ragunton
 August 18
@@ -3584,6 +3693,7 @@ Branch:  B1585 Mankayan
 MFO:4
 
 Thank you.
+
 Aug 18, 2024, 7:49 PM
 Jessica Tinay
 August 18
@@ -3603,6 +3713,7 @@ Branch:  B0215 San Fernando Outpost
 MFO:8
 
 Thank you.
+
 Abigail Manghi
 August 18
 Abigail Manghi
@@ -3622,6 +3733,7 @@ Branch:  B0519 Aringay
 MFO:4
 
 Thank you.
+
 Aug 18, 2024, 9:54 PM
 You replied to Preselyn Ragunton
 August 18
@@ -3659,6 +3771,7 @@ Branch:  B1349 Baguio City VI
 MFO:3
 
 Thank you.
+
 John Barata
 August 19
 John Barata
@@ -3677,6 +3790,7 @@ Branch:  B1389 Agoo II
 MFO:4
 
 Thank you.
+
 Aug 19, 2024, 8:59 AM
 You replied to Mark Barlongo
 August 19
@@ -3701,6 +3815,7 @@ BM
 
 
 Thank you.
+
 Sharmaine Cabanilla
 August 19
 Sharmaine Cabanilla
@@ -3733,6 +3848,7 @@ APECC MC Loan:0
 Reason: Reshuffle of Staff
 
 Thank you.
+
 You replied to Sharmaine Cabanilla
 August 19
 ok na po
@@ -3780,6 +3896,7 @@ Branch:  B0215 San Fernando Outpost
 MFO:3
 
 Thank you.
+
 You replied to Jessica Tinay
 August 20
 ..close na po ba kayo ma'am.
@@ -3814,6 +3931,7 @@ Branch:  B1389 Agoo II
 MFO:4
 
 Thank you.
+
 JohnAugust 20
 John Barata
 Good Evening po Sir @Buenaventura L. Alabab Jr. 
@@ -3831,6 +3949,7 @@ Branch:  B1389 Agoo II
 BM
 
 Thank you.
+
 Aug 20, 2024, 10:38 PM
 You replied to Jessica Tinay
 August 20
@@ -3867,6 +3986,7 @@ Branch:  B0989 Besao
 MFO:1
 
 Thank you.
+
 Aug 21, 2024, 6:23 AM
 Ronalyn Dumacyon
 August 21
@@ -3886,6 +4006,7 @@ Branch:  B0519 Aringay
 BM
 
 Thank you.
+
 You replied to Ronalyn Dumacyon
 August 21
 done na po..
@@ -3905,6 +4026,7 @@ John Barata replied to you
 August 21
 John Barata
 Ok na po. Thank you.
+
 Aug 21, 2024, 7:15 AM
 Roel Bayag-o
 August 21
@@ -3971,6 +4093,7 @@ Date Request:  8/21/2024
 Requested by: Jefferson R. Rarang 
 
 Thank you.
+
 EdwardAugust 21
 Edward Domingo
 @Buenaventura L. Alabab Jr.
@@ -3994,6 +4117,7 @@ MFO3
 
 
 Thank you.
+
 Gino Dela Cruz
 August 22
 Gino Dela Cruz
@@ -4013,6 +4137,7 @@ MFO2
 
 
 Thank you.
+
 Aug 22, 2024, 6:51 AM
 You sent
 August 22
@@ -4134,6 +4259,7 @@ MFO1
 
 
 Thank you.
+
 Aug 26, 2024, 8:37 PM
 Honey Leah Tejano
 August 26 at 8:37 PM
@@ -4153,6 +4279,7 @@ MFO3
 
 
 Thank you.
+
 Honey Leah TejanoAugust 26 at 8:38 PM
 Honey Leah Tejano
 Good evening po sir
@@ -4171,6 +4298,7 @@ BM Access
 
 
 Thank you.
+
 Ariel Collado
 August 26 at 8:39 PM
 Ariel Collado
@@ -4189,6 +4317,7 @@ Branch: B1584 Cervantes Outpost 1 (mfo1)
 
 
 Thank you.
+
 Francis Sotelo
 August 26 at 8:40 PM
 Francis Sotelo
@@ -4212,6 +4341,7 @@ MFO3
 
 
 Thank you.
+
 Francis Sotelo
 August 26 at 8:41 PM
 Francis Sotelo
@@ -4231,6 +4361,7 @@ MFO2
 
 
 Thank you.
+
 Jessica Layugan
 August 26 at 8:43 PM
 Jessica Layugan
@@ -4250,6 +4381,7 @@ MFO1
 
 
 Thank you.
+
 Ronie Gaen
 August 26 at 8:44 PM
 Ronie Gaen
@@ -4273,6 +4405,7 @@ MFO3
 
 
 Thank you.
+
 Aug 27, 2024, 4:42 AM
 Fidel Oriente
 August 27 at 4:42 AM
@@ -4293,6 +4426,7 @@ BM
 
 
 Thank you.
+
 Aug 27, 2024, 6:23 AM
 You replied to Mark Bergado
 August 27 at 6:23 AM
@@ -4344,6 +4478,7 @@ MFO2
 
 
 Thank you.
+
 Aug 27, 2024, 7:38 AM
 Roel Bayag-o
 August 27 at 7:38 AM
@@ -4370,6 +4505,7 @@ BM
 
 
 Thank you.
+
 Mark Joseph De Vera
 August 27 at 8:11 AM
 Mark Joseph De Vera
@@ -4394,6 +4530,7 @@ Mfo
 
 
 Thank you.
+
 Aug 27, 2024, 8:49 AM
 Roel Bayag-o
 August 27 at 8:49 AM
@@ -4482,6 +4619,7 @@ Branch:  B0224 Bauang
 MFO:1
 
 Thank you.
+
 You sent
 August 27 at 4:39 PM
 ..wait lang po sir..nasa meeting pa..may nag encode na po ba para sa MFO 1 sir..
@@ -4510,6 +4648,7 @@ BM Access
 
 
 Thank you.
+
 RaymartAugust 27 at 4:42 PM
 Raymart Gandeza
 Wag muna garud sir bukas na lang sir
@@ -4551,6 +4690,7 @@ MFO4
 
 
 Thank you.
+
 You replied to Kay-ann Toralba
 August 27 at 9:30 PM
 ok na po ma'am.
@@ -4589,6 +4729,7 @@ BM Access
 
 
 Thank you.
+
 Aug 28, 2024, 6:51 AM
 You replied to Raymart Gandeza
 August 28 at 6:51 AM
@@ -4629,6 +4770,7 @@ BM Access
 
 
 Thank you.
+
 You sent
 August 28 at 10:15 AM
 Good morning everyone!
@@ -4757,6 +4899,7 @@ Branch:  B0215 San Fernando Outpost
 MFO:3
 
 Thank you.
+
 JessicaAugust 29 at 6:11 AM
 Jessica Tinay
 Good Morning po Sir @Buenaventura L. Alabab Jr. 
@@ -4774,6 +4917,7 @@ Branch:  B0215 San Fernando Outpost
 BM Access
 
 Thank you.
+
 Ariel Collado
 August 29 at 6:14 AM
 Ariel Collado
@@ -4792,6 +4936,7 @@ Area: Mt.province 3
 Branch: B1584 Cervantes Quirino Outpost (mfo1)
 
 Thank you.
+
 Jessica Layugan
 August 29 at 6:14 AM
 Good evening po sir,
@@ -4810,6 +4955,7 @@ MFO1
 
 
 Thank you.
+
 JessicaAugust 29 at 6:16 AM
 Jessica Layugan
 Good evening po sir,
@@ -4828,6 +4974,7 @@ BM Access
 
 
 Thank you.
+
 Ariel Collado
 August 29 at 6:16 AM
 Ariel Collado
@@ -4846,6 +4993,7 @@ Branch: B1584 Cervantes Outpost (BM's Access)
 
 
 Thank you.
+
 Ronalyn Dumacyon
 August 29 at 6:28 AM
 Ronalyn Dumacyon
@@ -4876,6 +5024,7 @@ BM Access
 
 
 Thank you.
+
 Aug 29, 2024, 6:52 AM
 You sent
 August 29 at 6:52 AM
@@ -4906,6 +5055,7 @@ Date Request:  8/29/2024
 Requested by: Christopher De Guzman AA
 
 Thank you.
+
 Aug 29, 2024, 11:16 AM
 Mark Joseph De Vera
 August 29 at 11:16 AM
@@ -4927,6 +5077,7 @@ Mfo3
 
 
 Thank you.
+
 You replied to Christopher De Guzman
 August 29 at 11:16 AM
 ..good morning po sir..paki lagay po kung overstated or understated..tapos concern din po sa MIS..salamat po
@@ -4963,6 +5114,7 @@ Area: Mt.province 1
 Branch: B1585 Mankayan
 
 Thank you.
+
 Aug 29, 2024, 10:10 PM
 You replied to Preselyn Ragunton
 August 29 at 10:10 PM
@@ -5064,6 +5216,7 @@ Recommended By: Freddie Aloot RA
 Requested Date:08/30/2024
 
 Thank you.
+
 You replied to Freddie Aloot
 August 30 at 9:57 AM
 ..sige sir..wait lang po dito.
@@ -5120,6 +5273,7 @@ Recommended By: Freddie Aloot RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 12:08 PM
 Hazel Anecang
 August 30 at 12:08 PM
@@ -5152,6 +5306,7 @@ Requested date: August 30, 2024
 
 
 Thank you.
+
 Aug 30, 2024, 3:54 PM
 Edward Domingo
 August 30 at 3:54 PM
@@ -5283,6 +5438,7 @@ Recommended By: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Edward Domingo
 August 30 at 3:54 PM
 Edward Domingo
@@ -5360,6 +5516,7 @@ Recommended by: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 4:36 PM
 Edward Domingo
 August 30 at 4:36 PM
@@ -5404,6 +5561,7 @@ Recommended by: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 5:10 PM
 Edward Domingo
 August 30 at 5:10 PM
@@ -5482,6 +5640,7 @@ Recommended by: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Edward Domingo
 August 30 at 5:16 PM
 Edward Domingo
@@ -5558,6 +5717,7 @@ Recommended by: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 6:02 PM
 Edward Domingo
 August 30 at 6:02 PM
@@ -5614,6 +5774,7 @@ Recommended by: Edward Domingo-RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Edward Domingo
 August 30 at 6:03 PM
 Edward Domingo
@@ -5700,6 +5861,7 @@ Recommended By: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 You forwarded a message
 August 30 at 6:03 PM
 August 30, 2024
@@ -5827,6 +5989,7 @@ Recommended by: RONALD CUAREZ-RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Jeron Abayon
 August 30 at 6:12 PM
 Jeron Abayon
@@ -5917,6 +6080,7 @@ Recommended by: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 6:44 PM
 Ronald Cuarez
 August 30 at 6:44 PM
@@ -5983,6 +6147,7 @@ Recommended by: Ronald Cuarez-RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 7:08 PM
 Ronald Cuarez
 August 30 at 7:08 PM
@@ -6026,6 +6191,7 @@ Recommended by: Ronald Cuarez-RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 7:58 PM
 Ronald Cuarez
 August 30 at 7:58 PM
@@ -6058,6 +6224,7 @@ Recommended by: RONALD CUAREZ RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 8:16 PM
 Edward Domingo
 August 30 at 8:16 PM
@@ -6111,6 +6278,7 @@ Recommended by: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Edward Domingo
 August 30 at 8:16 PM
 Edward Domingo
@@ -6140,6 +6308,7 @@ Recommended by; Edward R. Domingo - RA
 Requested date: 08-30-24
 
 Thank you.
+
 Edward Domingo
 August 30 at 8:28 PM
 Edward Domingo
@@ -6225,6 +6394,7 @@ Recommended by: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 8:44 PM
 Freddie Aloot
 August 30 at 8:44 PM
@@ -6288,6 +6458,7 @@ Recommended By: Novemeir Ebro
 Requested Date:08/30/2024
 
 Thank you.
+
 Benjie Blancaflor
 August 30 at 8:49 PM
 Benjie Blancaflor
@@ -6406,6 +6577,7 @@ Recommended By: Freddie Aloot RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Edward Domingo
 August 30 at 8:51 PM
 Edward Domingo
@@ -6494,6 +6666,7 @@ Recommended By: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Freddie Aloot
 August 30 at 8:52 PM
 Freddie Aloot
@@ -6612,6 +6785,7 @@ Recommended By: Freddie Aloot RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 30, 2024, 9:58 PM
 Ronald Cuarez
 August 30 at 9:58 PM
@@ -6630,7 +6804,8 @@ Subject:Incident Report on Understated Rebates and wrong selection of transactio
 This is to inform the management regarding the understated Rebates on Group officer of our client Donnabelle Jimenez ,slot no. 4 in cattleya group of MFO 1, amounting to (1500)  happened last August 6, 2024. where   in  during that day of transaction the staff (MFo1)selected the wrong type of rebates on his eMFOR  instead of rebates on Group officer amounting to (3000),he encode rebates on financing amounting to (1500).
 
 
-Thank you..
+Thank you.
+.
 Aug 31, 2024, 7:54 AM
 You replied to Ronald Cuarez
 August 31 at 7:54 AM
@@ -6723,6 +6898,7 @@ Recommended by: Edward Domingo RA
 Requested Date:08/30/2024
 
 Thank you.
+
 Aug 31, 2024, 9:00 AM
 Christopher De Guzman
 August 31 at 9:00 AM
@@ -6797,6 +6973,7 @@ Date Request:  8/31/2024
 Requested by: Christopher De Guzman 
 
 Thank you.
+
 Aira Salazar
 August 31 at 10:39 AM
 Aira Salazar
@@ -6814,6 +6991,7 @@ Date Request:  8/31/2024
 Requested by: Aira C. Salazar
 
 Thank you.
+
 Aug 31, 2024, 10:58 AM
 You replied to yourself
 August 31 at 10:58 AM
@@ -6828,6 +7006,7 @@ Lencer Selec
 Good morning, Sir.
 
 Mountain Province II, composed of B0460 Bontoc, B1754 Sabangan, and B0989 Besao, already saved reports, sir. Thank you.
+
 Aug 31, 2024, 11:41 AM
 You replied to yourself
 August 31 at 11:41 AM
@@ -6857,7 +7036,8 @@ Subject:Incident Report on Unbalanced Dashboard vs Fs amount of 4420
 This is to inform the management regarding of unbalanced dashboard vs FS, upon my checking of bankbook it  is the same balance with the FS but the dashboard overstated amount of 4420 from the previous month report.
 
 
-Thank you..
+Thank you.
+.
 Christopher De Guzman
 August 31 at 2:46 PM
 Christopher De Guzman
@@ -6876,6 +7056,7 @@ Date Request:  8/31/2024
 Requested by: Christopher De Guzman 
 
 Thank you.
+
 Sep 1, 2024, 11:10 AM
 You sent
 September 1 at 11:10 AM
@@ -6896,6 +7077,7 @@ Date Request:  8/31/2024
 Requested by: Hazel Anecang 
 
 Thank you.
+
 Sep 1, 2024, 12:35 PM
 You sent
 September 1 at 12:35 PM
@@ -6952,6 +7134,7 @@ MFO2
 
 
 Thank you.
+
 FrancisSeptember 1 at 7:29 PM
 Francis Sotelo
 Good evening po sir,
@@ -6990,6 +7173,7 @@ MFO4
 
 
 Thank you.
+
 Elmer Labrador
 September 1 at 7:45 PM
 Elmer Labrador
@@ -7020,6 +7204,7 @@ BM Access
 
 
 Thank you.
+
 You replied to Elmer Labrador
 September 1 at 7:46 PM
 Good evening sir Control Number po ng Staff Transfer. Wala pa din po kasi sa template. Thank you po.
@@ -7051,6 +7236,7 @@ MFO1
 
 
 Thank you.
+
 Benjie Blancaflor
 September 1 at 8:42 PM
 Good evening po sir,
@@ -7106,6 +7292,7 @@ Branch: B1584 Cervantes Mother
 MFO 2
 
 Thank you.
+
 Aiza Ebro
 September 1 at 9:07 PM
 Aiza Ebro
@@ -7124,6 +7311,7 @@ Branch: B1584 Cervantes Mother
 MFO 1
 
 Thank you.
+
 Aiza Ebro
 September 1 at 9:07 PM
 Aiza Ebro
@@ -7142,6 +7330,7 @@ Branch: B1584 Cervantes Mother
 MFO 2
 
 Thank you.
+
 Sep 2, 2024, 7:07 AM
 Fidel Oriente
 September 2 at 7:07 AM
@@ -7161,6 +7350,7 @@ Branch: B0214 Agoo 1
 MFO 1
 
 Thank you.
+
 Fidel Oriente
 September 2 at 7:07 AM
 Fidel Oriente
@@ -7179,6 +7369,7 @@ Branch: B0214 Agoo 1
 MFO 2
 
 Thank you.
+
 Ernesto Macasieb
 September 2 at 7:09 AM
 Ernesto Macasieb
@@ -7198,6 +7389,7 @@ MFO 1
 
 Thank you.
 
+
 Good Day po Sir @Buenaventura L. Alabab Jr. 
 
 Request for CAMS-CBS Access
@@ -7213,6 +7405,7 @@ Branch: B0532 Itogon
 MFO 3
 
 Thank you.
+
 Sep 2, 2024, 7:25 AM
 You replied to Honey Leah Tejano
 September 2 at 7:25 AM
@@ -7246,6 +7439,7 @@ Branch:  B0224 Bauang
 BM Access
 
 Thank you.
+
 You replied to Elmer Labrador
 September 2 at 8:55 AM
 wala pa po sa template sir..thank you po
@@ -7304,6 +7498,7 @@ Aira Salazar replied to you
 September 2 at 11:10 AM
 Aira Salazar
 Goodmorning Sir, wait nalang daw ng Consolidation ng MIS para sa B1334 Sablan. Thank you.
+
 Sep 2, 2024, 12:29 PM
 Christopher De Guzman
 September 2 at 12:29 PM
@@ -7324,6 +7519,7 @@ Branch:  B1674 La Trinidad II
 BM Access
 
 Thank you.
+
 You replied to Christopher De Guzman
 September 2 at 12:37 PM
 ..naka BM na po sir..thank you po
@@ -7354,6 +7550,7 @@ Branch: B0577 Naguilian
 MFO 2
 
 Thank you.
+
 Sep 2, 2024, 1:52 PM
 You replied to Adora Bulaon
 September 2 at 1:52 PM
@@ -7519,6 +7716,7 @@ Branch: B0792 Baguio City II(Mother)
 MFO 1
 
 Thank you.
+
 Elmer Labrador
 September 3 at 6:29 AM
 Elmer Labrador
@@ -7549,6 +7747,7 @@ BM Access
 
 
 Thank you.
+
 Sep 3, 2024, 7:10 AM
 You replied to Elmer Labrador
 September 3 at 7:10 AM
@@ -7572,6 +7771,7 @@ MFO 3
 
 Thank you.
 
+
 Good Day po Sir @Buenaventura L. Alabab Jr. 
 
 Request for CAMS-CBS Access
@@ -7587,6 +7787,7 @@ Branch: B0519 Aringay
 MFO 2
 
 Thank you.
+
 Sep 3, 2024, 8:35 AM
 You replied to Loida Galate
 September 3 at 8:35 AM
@@ -7614,6 +7815,7 @@ Branch:  B0577 NAGUILAN OUTPOST I
 MFO:2
 
 Thank you.
+
 Sep 3, 2024, 10:20 AM
 You replied to Francis Sotelo
 September 3 at 10:20 AM
@@ -7650,6 +7852,7 @@ AP (Payroll): 0
 Reason: Reshuffle of Staff
 
 Thank you.
+
 Fidel Oriente
 September 3 at 10:37 AM
 Fidel Oriente
@@ -7669,6 +7872,7 @@ Branch:  B0214 Agoo 1
 MFO:4
 
 Thank you.
+
 John Barata
 September 3 at 10:41 AM
 John Barata
@@ -7700,6 +7904,7 @@ AP (Payroll): 0
 Reason: Reshuffle of Staff
 
 Thank you.
+
 Christopher De Guzman
 September 3 at 10:55 AM
 Christopher De Guzman
@@ -7731,6 +7936,7 @@ AP (Payroll): 0
 Reason: Resume to work
 
 Thank you.
+
 Sep 3, 2024, 11:14 AM
 Francis Sotelo
 September 3 at 11:14 AM
@@ -7761,6 +7967,7 @@ APECC MC Loan:30,000
 Reason: Reshuffle of Staff
 
 Thank you.
+
 Francis Sotelo
 September 3 at 11:14 AM
 Francis Sotelo
@@ -7780,6 +7987,7 @@ Branch:  B0577 NAGUILAN OUTPOST I
 MFO:2
 
 Thank you.
+
 John Barata replied to Francis Sotelo
 September 3 at 11:25 AM
 John Barata
@@ -7799,6 +8007,7 @@ Branch:  B1389 Agoo II
 MFO:2
 
 Thank you.
+
 Sep 3, 2024, 11:42 AM
 You replied to Christopher De Guzman
 September 3 at 11:42 AM
@@ -7827,6 +8036,7 @@ Branch:  B0215 San Fernando Mother
 MFO:4
 
 Thank you.
+
 Sep 4, 2024, 5:35 AM
 Aiza Ebro
 September 4 at 5:35 AM
@@ -7856,6 +8066,7 @@ Branch: B1584 Cervantes Mother
 BM's Access
 
 Thank you.
+
 Sep 4, 2024, 9:17 AM
 You replied to Aiza Ebro
 September 4 at 9:17 AM
@@ -7887,6 +8098,7 @@ Branch:  B0215 San Fernando (Mother)
 BM Access 
 
 Thank you.
+
 Sep 4, 2024, 3:00 PM
 You sent
 September 4 at 3:00 PM
@@ -7925,6 +8137,7 @@ Branch: B0295 La Trinidad I
 MFO 1
 
 Thank you.
+
 Sep 5, 2024, 11:53 AM
 Andy Palino
 September 5 at 11:53 AM
@@ -7943,6 +8156,7 @@ Branch: B1652 Baguio City IV (Camp 3 Outpost)
 MFO: 5  
 
 Thank you.
+
 Sep 5, 2024, 2:29 PM
 Andy Palino
 September 5 at 2:29 PM
@@ -7963,6 +8177,7 @@ Branch:  B1652 Baguio City IV (Camp 3 Outpost)
 BM Access 
 
 Thank you.
+
 You replied to Andy Palino
 September 5 at 2:30 PM
 ..ok na po sir..
@@ -8007,6 +8222,7 @@ Branch: B0532 Itogon
 MFO 3
 
 Thank you.
+
 Fidel Oriente
 September 5 at 9:19 PM
 Fidel Oriente
@@ -8032,6 +8248,7 @@ Branch: B0861 STO. Tomas
 MFO 2
 
 Thank you.
+
 You sent
 September 5 at 9:34 PM
 https://play.google.com/store/apps/details?id=org.asaphil.mfo.app&pli=1
@@ -8056,6 +8273,7 @@ Branch: B0225 Rosario
 MFO 3
 
 Thank you.
+
 Sharmaine Cabanilla
 September 5 at 10:22 PM
 Sharmaine Cabanilla
@@ -8075,6 +8293,7 @@ Branch: B1378 Pugo
 MFO 1
 
 Thank you.
+
 You replied to Ernesto Macasieb
 September 5 at 10:34 PM
 done po
@@ -8099,6 +8318,7 @@ Branch: B1389 Agoo II
 MFO 4
 
 Thank you.
+
 John Barata replied to themself
 September 5 at 10:40 PM
 John Barata
@@ -8130,6 +8350,7 @@ Special  Advance: 0
 1st Half Salary: 0
 
 Thank you.
+
 Adora Bulaon
 September 5 at 10:40 PM
 Adora Bulaon
@@ -8149,6 +8370,7 @@ Branch: B0577 Naguilian
 MFO 4
 
 Thank you.
+
 You replied to Sharmaine Cabanilla
 September 5 at 10:47 PM
 done po
@@ -8170,6 +8392,7 @@ Branch: B0861 STO. Tomas
 MFO 4
 
 Thank you.
+
 You replied to John Barata
 September 5 at 10:53 PM
 done po
@@ -8200,6 +8423,7 @@ Branch: B0224 Bauang
 MFO 1
 
 Thank you.
+
 Raymart Gandeza
 September 5 at 11:13 PM
 Raymart Gandeza
@@ -8217,6 +8441,7 @@ Branch: B0224 Bauang
 MFO 3
 
 Thank you.
+
 Sep 6, 2024, 3:54 AM
 Elizabeth Dacanay
 September 6 at 3:54 AM
@@ -8235,6 +8460,7 @@ Branch: B0581 Balaoan
 MFO 1
 
 Thank you.
+
 Sep 6, 2024, 4:52 AM
 Kristine Geraldez
 September 6 at 4:52 AM
@@ -8253,6 +8479,7 @@ Branch: B0768 Tublay
 MFO 3
 
 Thank you.
+
 Sep 6, 2024, 6:27 AM
 Sheila May Padua
 September 6 at 6:27 AM
@@ -8271,6 +8498,7 @@ Branch: B1764 La Trinidad 2
 MFO 2
 
 Thank you.
+
 Loida Galate
 September 6 at 6:35 AM
 Loida Galate
@@ -8288,6 +8516,7 @@ Branch: B0792 Baguio City 2 (Mother)
 MFO 2
 
 Thank you.
+
 Sep 6, 2024, 7:03 AM
 Jonalaine Canayon
 September 6 at 7:03 AM
@@ -8307,6 +8536,7 @@ Branch: B0792 Baguio II (Tuba outpost)
 MFO 2
 
 Thank you.
+
 Sep 6, 2024, 7:29 AM
 Rowell Aglugob
 September 6 at 7:29 AM
@@ -8326,6 +8556,7 @@ Branch: B1750 Bokod
 MFO 1
 
 Thank you.
+
 Sep 6, 2024, 9:25 AM
 You replied to Raymart Gandeza
 September 6 at 9:25 AM
@@ -8362,6 +8593,7 @@ Branch: B0296 Baguio City I
 MFO 4
 
 Thank you.
+
 Sep 6, 2024, 1:47 PM
 Catherine Balingao
 September 6 at 1:47 PM
@@ -8381,6 +8613,7 @@ Branch: B1680 Baguio City V
 MFO 2
 
 Thank you.
+
 Sep 6, 2024, 2:36 PM
 You replied to Catherine Balingao
 September 6 at 2:36 PM
@@ -8426,6 +8659,7 @@ Branch: B0581 Balaoan
 BM Access
 
 Thank you.
+
 Sep 8, 2024, 5:17 PM
 Erwin Madayag
 September 8 at 5:17 PM
@@ -8445,6 +8679,7 @@ Branch: B0861 STO. Tomas
 MFO 4
 
 Thank you.
+
 Erwin Madayag
 September 8 at 5:19 PM
 Erwin Madayag
@@ -8462,6 +8697,7 @@ Branch: B0861 STO. Tomas
 BM Access
 
 Thank you.
+
 Sharmaine Cabanilla
 September 8 at 5:27 PM
 Sharmaine Cabanilla
@@ -8479,6 +8715,7 @@ Branch: B1378 Pugo
 BM Access
 
 Thank you.
+
 Ernesto Macasieb
 September 8 at 5:35 PM
 Ernesto Macasieb
@@ -8497,6 +8734,7 @@ Branch: B0532 Itogon
 MFO 1
 
 Thank you.
+
 Angelica Galinto
 September 8 at 5:37 PM
 Angelica Galinto
@@ -8514,6 +8752,7 @@ Branch: B0225 Rosario
 BM Access
 
 Thank you.
+
 Sharmaine Cabanilla
 September 8 at 5:38 PM
 Sharmaine Cabanilla
@@ -8533,6 +8772,7 @@ Branch: B1378 Pugo
 MFO 1
 
 Thank you.
+
 Sep 8, 2024, 6:12 PM
 Novemeir Ebro
 September 8 at 6:12 PM
@@ -8552,6 +8792,7 @@ Branch: B1585 MANKAYAN
 MFO 1
 
 Thank you.
+
 Angelica Galinto
 September 8 at 6:12 PM
 Angelica Galinto
@@ -8571,6 +8812,7 @@ Branch: B0225 Rosario
 MFO 3
 
 Thank you.
+
 Jamaica Rabor
 September 8 at 6:24 PM
 Jamaica Rabor
@@ -8590,6 +8832,7 @@ Branch: B0296 Baguio city 1
 MFO 4
 
 Thank you.
+
 Jamaica Rabor
 September 8 at 6:30 PM
 Jamaica Rabor
@@ -8607,6 +8850,7 @@ Branch: B0296 Baguio City I
 BM Access
 
 Thank you.
+
 Jessica Tinay
 September 8 at 6:38 PM
 Jessica Tinay
@@ -8624,6 +8868,7 @@ Branch: B0215 San Fernando Outpost
 MFO2
 
 Thank you.
+
 Kristine Geraldez
 September 8 at 6:40 PM
 Kristine Geraldez
@@ -8643,6 +8888,7 @@ Branch: B0768 Tublay
 MFO 3
 
 Thank you.
+
 Sep 8, 2024, 6:57 PM
 Honey Leah Tejano
 September 8 at 6:57 PM
@@ -8676,6 +8922,7 @@ BM Access
 
 
 Thank you.
+
 Sheila May Padua
 September 8 at 7:11 PM
 Sheila May Padua
@@ -8706,6 +8953,7 @@ Mfo2
 
 
 Thank you.
+
 John Barata
 September 8 at 7:14 PM
 John Barata
@@ -8724,6 +8972,7 @@ Branch: B1389 Agoo II
 MFO 4
 
 Thank you.
+
 Aira Salazar added Raymund Del Rosario to the group.
 Raymund Del Rosario
 September 8 at 7:27 PM
@@ -8744,6 +8993,7 @@ Branch: B1187 BAGUIO 3
 MFO 1
 
 Thank you.
+
 Aira Salazar
 September 8 at 7:27 PM
 Aira Salazar
@@ -8767,6 +9017,7 @@ Branch: B0296 BAGUIO 1
 MFO 2
 
 Thank you.
+
 You forwarded a message
 September 8 at 7:36 PM
 IT Advisory: CAMS Workflow Update - Financing Approvals
@@ -8817,6 +9068,7 @@ Branch: B1680 Baguio City V
 MFO 2
 
 Thank you.
+
 mary.quitorianoasaphil.org
 Jonalaine Canayon
 September 8 at 7:56 PM
@@ -8836,6 +9088,7 @@ Branch: B0792 Baguio II (Tuba outpost)
 MFO 2
 
 Thank you.
+
 Sep 8, 2024, 9:12 PM
 Elizabeth Dacanay
 September 8 at 9:12 PM
@@ -8854,6 +9107,7 @@ Branch: B0581 Balaoan
 MFO 1
 
 Thank you.
+
 Racer Camitog
 September 8 at 9:16 PM
 Racer Camitog
@@ -8871,6 +9125,7 @@ Branch: B0634 Bangar
 MFO 2
 
 Thank you.
+
 Sep 8, 2024, 9:32 PM
 Mary Zapata
 September 8 at 9:32 PM
@@ -8891,6 +9146,7 @@ Branch:  B0511 luna
 MFO:2
 
 Thank you.
+
 Loida Galate
 September 8 at 9:46 PM
 Loida Galate
@@ -8908,6 +9164,7 @@ Branch: B0792 Baguio City II(Mother)
 MFO2
 
 Thank you.
+
 Sep 8, 2024, 10:57 PM
 You replied to Ernesto Macasieb
 September 8 at 10:57 PM
@@ -8942,6 +9199,7 @@ BM Access
 
 
 Thank you.
+
 Adora Bulaon
 September 9 at 6:29 AM
 Adora Bulaon
@@ -8959,6 +9217,7 @@ Branch: B0577 NAGUILIAN(Mother)
 MFO4
 
 Thank you.
+
 Ernesto Macasieb
 September 9 at 6:38 AM
 Good day po sir
@@ -8976,6 +9235,7 @@ Branch: B0532 Itogon
 MFO 3
 
 Thank you.
+
 ErnestoSeptember 9 at 6:39 AM
 Ernesto Macasieb
 Good day po sir
@@ -8993,6 +9253,7 @@ Branch: B0532 Itogon
 MFO 1
 
 Thank you.
+
 Sep 9, 2024, 7:00 AM
 Mary Zapata
 September 9 at 7:00 AM
@@ -9011,6 +9272,7 @@ Branch: B0511 luna
 MFO3
 
 Thank you.
+
 Mark Barlongo
 September 9 at 7:02 AM
 Mark Barlongo
@@ -9028,6 +9290,7 @@ Branch: B1349 Baguio City VI
 MFO3
 
 Thank you.
+
 Honey Leah Tejano
 September 9 at 7:12 AM
 Honey Leah Tejano
@@ -9048,6 +9311,7 @@ BM Access
 
 
 Thank you.
+
 Catherine Balingao
 September 9 at 7:23 AM
 Catherine Balingao
@@ -9066,6 +9330,7 @@ Branch: B1680 Baguio City V
 BM Access 
 
 Thank you.
+
 Sep 9, 2024, 7:42 AM
 Jonalaine Canayon
 September 9 at 7:42 AM
@@ -9085,6 +9350,7 @@ Branch: B0792 Baguio II (Tuba outpost)
 MFO 2
 
 Thank you.
+
 Kyle Garcia
 September 9 at 7:48 AM
 Kyle Garcia
@@ -9106,6 +9372,7 @@ Branch: B1750 Bokod
 BM Access
 
 Thank you.
+
 Sep 9, 2024, 9:34 AM
 You replied to Mary Zapata
 September 9 at 9:34 AM
@@ -9132,6 +9399,7 @@ Branch:  B1750 Bokod
 MFO:1
 
 Thank you.
+
 Kristine Geraldez
 September 9 at 9:43 AM
 Kristine Geraldez
@@ -9153,6 +9421,7 @@ Branch: B0768 Tublay
 BM Access
 
 Thank you.
+
 Sep 9, 2024, 10:36 AM
 Mark Barlongo
 September 9 at 10:36 AM
@@ -9173,6 +9442,7 @@ Branch:  B1349 Baguio City VI
 MFO: 03
 
 Thank you.
+
 Sep 9, 2024, 10:58 AM
 Ronalyn Dumacyon
 September 9 at 10:58 AM
@@ -9191,6 +9461,7 @@ Branch: B0519 Aringay
 MFO 4
 
 Thank you.
+
 Sep 9, 2024, 11:36 AM
 You replied to Ronalyn Dumacyon
 September 9 at 11:36 AM
@@ -9228,6 +9499,7 @@ Branch: B0511 luna
 MFO2
 
 Thank you.
+
 You replied to Mary Zapata
 September 9 at 12:15 PM
 good afternoon po..wait lang po dito ma'am..thank you po
@@ -9253,6 +9525,7 @@ Branch: B0519 Aringay Mother
 MFO4
 
 Thank you.
+
 Jamaica Rabor
 September 9 at 12:39 PM
 Jamaica Rabor
@@ -9276,6 +9549,7 @@ Branch: B1389 Agoo II
 ABH
 
 Thank you.
+
 Sep 9, 2024, 1:15 PM
 You replied to Abigail Manghi
 September 9 at 1:15 PM
@@ -9397,6 +9671,7 @@ Branch: B0519 Aringay
 MFO 4
 
 Thank you.
+
 Ronalyn Dumacyon replied to themself
 September 9 at 10:02 PM
 Ronalyn Dumacyon
@@ -9443,6 +9718,7 @@ Branch: B0634 Bangar
 MFO 2
 
 Thank you.
+
 Sep 10, 2024, 6:40 AM
 You replied to Racer Camitog
 September 10 at 6:40 AM
@@ -9477,6 +9753,7 @@ Mfo2
 
 
 Thank you.
+
 Sep 10, 2024, 7:23 AM
 Jefferson Rarang
 September 10 at 7:23 AM
@@ -9495,6 +9772,7 @@ Branch: B1187 Baguio City III
 BM Access
 
 Thank you.
+
 Sep 10, 2024, 9:01 AM
 You replied to Jim Balicao
 September 10 at 9:01 AM
@@ -9520,6 +9798,7 @@ Branch: B0296 Baguio City I
 ABH Access
 
 Thank you.
+
 You replied to Jamaica Rabor
 September 10 at 10:38 AM
 done po
@@ -9656,6 +9935,7 @@ Requested by :Loida Galate
 Requested date :09-11-2024
 
 Thank you.
+
 Sep 11, 2024, 3:58 PM
 Abigail Manghi
 September 11 at 3:58 PM
@@ -9674,6 +9954,7 @@ Branch: B0519
 ABH Access
 
 Thank you.
+
 You sent
 September 11 at 3:58 PM
 ok na po ito ma'am. logout login na lang
@@ -9710,6 +9991,7 @@ Branch: B0295 La Trinidad I
 BM Access
 
 Thank you.
+
 MarySeptember 11 at 9:09 PM
 Mary Cabansag
 Good Day po Sir @Buenaventura L. Alabab Jr. 
@@ -9726,6 +10008,7 @@ Branch: B0295 La Trinidad I
 MFO 1
 
 Thank you.
+
 Sep 12, 2024, 6:14 AM
 Ernesto Macasieb
 September 12 at 6:14 AM
@@ -9743,6 +10026,7 @@ Branch: B0532 Itogon
 BM Access
 
 Thank you.
+
 ErnestoSeptember 12 at 6:14 AM
 Ernesto Macasieb
 Good Day po Sir @Buenaventura L. Alabab Jr. 
@@ -9760,6 +10044,7 @@ Branch: B0532 Itogon
 MFO 1
 
 Thank you.
+
 Sep 12, 2024, 3:45 PM
 Darel Cauilan
 September 12 at 3:45 PM
@@ -9840,6 +10125,7 @@ Area: MT. Province 1
 Branch: B1585 Mankayan-BH
 
 Thank you.
+
 Sep 13, 2024, 9:36 AM
 You replied to Preselyn Ragunton
 September 13 at 9:36 AM
@@ -9879,6 +10165,7 @@ Note: If you encounter any errors, please coordinate with your CAMS support in-c
 (c) System Checker Application created by Sir Buenaventura Alabab Jr.
 
 Thank you.
+
 Icon for this message
 Connect Google Drive account to see this preview
 This link is private and you need to authorize with your Google Drive account so that we know who you are.
@@ -9913,6 +10200,7 @@ Area: MT. Province 3
 Branch: B1584 Cervantes-Outpost 1 (Mfo1 )
 
 Thank you.
+
 Sep 15, 2024, 6:28 PM
 Marivic Ellaine Mangawang
 September 15 at 6:28 PM
@@ -9931,6 +10219,7 @@ Area: Benguet 1
 Branch: B1652 Baguio City IV Mother (Mfo3)
 
 Thank you.
+
 Ronalyn Dumacyon
 September 15 at 6:33 PM
 Ronalyn Dumacyon
@@ -9947,6 +10236,7 @@ Area: La Union I
 Branch: B0519 Aringay Mother (Mfo3)
 
 Thank you.
+
 Sep 15, 2024, 6:59 PM
 Catherine Balingao
 September 15 at 6:59 PM
@@ -9966,6 +10256,7 @@ Branch: B1334 Sablan
 BM Access
 
 Thank you.
+
 Catherine Balingao
 September 15 at 6:59 PM
 Catherine Balingao
@@ -9995,6 +10286,7 @@ Special  Advance: 0
 1st Half Salary: 	
 
 Thank you.
+
 Sep 16, 2024, 6:02 AM
 Elmer Labrador
 September 16 at 6:02 AM
@@ -10014,6 +10306,7 @@ Branch: B0274 Bacnotan
 (Mfo3) 
 
 Thank you.
+
 www.asaphil.org
 Elmer Labrador
 September 16 at 6:02 AM
@@ -10046,6 +10339,7 @@ APECC MC Loan:37,050
 Reason: Reshuffle of Staff
 
 Thank you.
+
 Sep 16, 2024, 6:32 AM
 Ernesto Macasieb
 September 16 at 6:32 AM
@@ -10074,6 +10368,7 @@ Special  Advance: 0
 1st Half Salary: 12,254
 
 Thank you.
+
 Ernesto Macasieb
 September 16 at 6:33 AM
 Ernesto Macasieb
@@ -10095,6 +10390,7 @@ Branch: B0845 Kapangan
 Bm Access
 
 Thank you.
+
 Sep 16, 2024, 7:01 AM
 Elizabeth Dacanay
 September 16 at 7:01 AM
@@ -10113,6 +10409,7 @@ Requested Date: September 16 ,2024
 MFO 2
 
 Thank you.
+
 Sep 16, 2024, 7:23 AM
 Jim Balicao
 September 16 at 7:23 AM
@@ -10134,6 +10431,7 @@ Branch: B1680 Baguio City 5
 BM Access
 
 Thank you.
+
 Mark Joseph De Vera
 September 16 at 7:28 AM
 Mark Joseph De Vera
@@ -10153,6 +10451,7 @@ Branch: B0532 Itogon
 BM Access
 
 Thank you.
+
 Mon 11:11 AM
 You forwarded a message
 September 16 at 11:11 AM
@@ -10199,6 +10498,7 @@ Branch:  B0989 Besao
 MFO:2
 
 Thank you.
+
 Mark Bergado
 September 16 at 11:57 AM
 Mark Bergado
@@ -10218,6 +10518,7 @@ MFO1
 
 
 Thank you.
+
 Mon 7:25 PM
 You replied to yourself
 September 16 at 7:25 PM
@@ -10304,6 +10605,7 @@ September 17 at 6:41 PM
 Abigail Manghi
 Permission to leave.
 Thank you.
+
 Abigail Manghi left the group.
 Preselyn Ragunton
 September 17 at 6:50 PM
@@ -10365,6 +10667,7 @@ Correct Data:
 Requested By: Jessica Tinay
 Requested Date:09-17-2024
 Thank you.
+
 Catherine Balingao replied to you
 September 17 at 7:30 PM
 Catherine Balingao
@@ -10424,6 +10727,7 @@ Area: MT. Province 3
 Branch: B1584 Cervantes-Outpost 1 (Mfo1 )
 
 Thank you.
+
 Ariel Collado
 September 17 at 9:29 PM
 Ariel Collado
@@ -10441,6 +10745,7 @@ Area: MT. Province 3
 Branch: B1584 Cervantes-Outpost 1 (BM Access )
 
 Thank you.
+
 Wed 6:48 AM
 Honey Leah Tejano
 September 18 at 6:48 AM
@@ -10462,6 +10767,7 @@ MFO3
 
 
 Thank you.
+
 You sent
 September 18 at 6:56 AM
 ok na po lahat ng request for cams access. good morning po
@@ -10485,6 +10791,7 @@ MFO2
 
 
 Thank you.
+
 Wed 7:33 AM
 You replied to Mark Bergado
 September 18 at 7:33 AM
@@ -10509,6 +10816,7 @@ MFO1
 
 
 Thank you.
+
 Wed 11:26 AM
 Jamaica Rabor replied to themself
 September 18 at 11:26 AM
@@ -10540,6 +10848,7 @@ Branch: B1389 Agoo II
 MFO 4
 
 Thank you.
+
 Raymart Gandeza
 September 18 at 9:03 PM
 Raymart Gandeza
@@ -10558,6 +10867,7 @@ MFO4
 
 
 Thank you.
+
 Wed 11:16 PM
 Marivic Ellaine Mangawang
 September 18 at 11:16 PM
@@ -10576,6 +10886,7 @@ Area: Benguet 1
 Branch: B1652 Baguio City IV Mother (Mfo2)
 
 Thank you.
+
 Thu 6:18 AM
 Marivic Ellaine Mangawang
 September 19 at 6:18 AM
@@ -10594,6 +10905,7 @@ Area: Benguet 1
 Branch: B1652 Baguio City IV Mother (Mfo3)
 
 Thank you.
+
 Mark Joseph De Vera
 September 19 at 6:19 AM
 Mark Joseph De Vera
@@ -10611,11 +10923,13 @@ Area: Benguet 1
 Branch: B0532 Itogon Mother (Mfo1)
 
 Thank you.
+
 Thu 11:24 AM
 John Barata replied to themself
 September 19 at 11:24 AM
 John Barata
 Good afternoon sir. Follow ko lang po access niya. Thank you.
+
 You sent
 September 19 at 11:24 AM
 ..ok na yan sir..logout login lang..thank you
@@ -10643,6 +10957,7 @@ John Barata
 September 19 at 11:39 AM
 John Barata
 Ok na po sir. Thank you.
+
 Thu 9:29 PM
 You sent
 September 19 at 9:29 PM
@@ -10679,6 +10994,7 @@ Other Rec'bles: 0
 First half salary: 0
 
 Thank you.
+
 Ronalyn Dumacyon
 September 20 at 5:25 PM
 Ronalyn Dumacyon
@@ -10697,6 +11013,7 @@ Branch: B0519 Aringay Mother
 (Bm Access)
 
 Thank you.
+
 You sent
 September 20 at 5:37 PM
 ..wait lang po..drive lang po ako..
@@ -10718,6 +11035,7 @@ Area: Benguet 1
 Branch: B1652 Baguio City IV Mother (BM access)
 
 Thank you.
+
 You replied to Ronalyn Dumacyon
 September 20 at 9:06 PM
 ok na po ito
@@ -10751,6 +11069,7 @@ Area: La union IV
 Branch: B0511 luna (BM access)
 
 Thank you.
+
 Sun 7:30 PM
 Racer Camitog
 Yesterday at 7:30 PM
@@ -10769,6 +11088,7 @@ Area: La Union IV
 Branch: B0634 Bangar
 
 Thank you.
+
 Racer Camitog
 Yesterday at 7:31 PM
 Racer Camitog
@@ -10800,6 +11120,7 @@ APECC MC Loan:37,050
 Reason: Reshuffle of Staff
 
 Thank you.
+
 Honey Leah Tejano
 Yesterday at 7:35 PM
 Honey Leah Tejano
@@ -10819,6 +11140,7 @@ MFO3
 
 
 Thank you.
+
 Honey Leah Tejano
 Yesterday at 7:35 PM
 Honey Leah Tejano
@@ -10839,6 +11161,7 @@ BM Access
 
 
 Thank you.
+
 Kyle Garcia
 Yesterday at 7:37 PM
 Kyle Garcia
@@ -10859,6 +11182,7 @@ MFO3
 
 
 Thank you.
+
 Sun 8:16 PM
 You forwarded a message
 Yesterday at 8:16 PM
@@ -10933,6 +11257,7 @@ Branch: B1389 Agoo II
 MFO 4
 
 Thank you.
+
 12:16 AM
 You replied to Racer Camitog
 Today at 12:16 AM
@@ -10955,6 +11280,7 @@ Branch: B1764 La Trinidad 2
 MFO 3
 
 Thank you.
+
 You replied to Mary Zapata
 Today at 5:43 AM
 ok na po ito. good morning
@@ -10987,6 +11313,7 @@ Branch: B0274 Bacnotan
 BM
 
 Thank you.
+
 www.asaphil.org
 You replied to Elmer Labrador
 Today at 6:00 AM
@@ -11008,6 +11335,7 @@ Branch: B0532 Itogon
 BM Access
 
 Thank you.
+
 You replied to Mark Joseph De Vera
 Today at 6:00 AM
 same din po..sino po ipapalit MFO 1 sir
@@ -11040,6 +11368,7 @@ Other Rec'bles: 0
 First half salary: 6178
 
 Thank you.
+
 Elmer Labrador
 Today at 6:03 AM
 Elmer Labrador
@@ -11060,6 +11389,7 @@ Branch: B0274 Bacnotan
 Mfo2
 
 Thank you.
+
 6:22 AM
 Mark Joseph De Vera
 Today at 6:22 AM
@@ -11079,6 +11409,7 @@ Branch: B0532 Itogon
 MFO 1
 
 Thank you.
+
 Ronalyn Dumacyon
 Today at 6:28 AM
 Ronalyn Dumacyon
@@ -11096,6 +11427,7 @@ Branch: B0519 Aringay
 MFO 3
 
 Thank you.
+
 Racer Camitog replied to you
 Today at 6:29 AM
 Racer Camitog
@@ -11120,6 +11452,7 @@ Area: La Union IV
 Branch: B0634 Bangar
 MFO1
 Thank you.
+
 Ronalyn Dumacyon
 Today at 6:30 AM
 Ronalyn Dumacyon
@@ -11137,6 +11470,7 @@ Branch: B0519 Aringay
 Bm Access
 
 Thank you.
+
 You replied to Mark Joseph De Vera
 Today at 6:36 AM
 done na po
@@ -11177,6 +11511,7 @@ APECC MC Loan:37,050
 Reason: Reshuffle of Staff
 
 Thank you.
+
 You replied to Racer Camitog
 Today at 6:39 AM
 done na po
@@ -11206,6 +11541,7 @@ BM. Access
 
 
 Thank you.
+
 Raymart Gandeza
 Today at 6:47 AM
 Raymart Gandeza
@@ -11224,6 +11560,7 @@ MFO4
 
 
 Thank you.
+
 Jamaica Rabor
 Today at 6:48 AM
 Jamaica Rabor
@@ -11241,6 +11578,7 @@ Branch: B0296 Baguio City I
 MFO 1
 
 Thank you.
+
 7:06 AM
 Loida Galate
 Today at 7:06 AM
@@ -11259,6 +11597,7 @@ Branch: B0792 Baguio City II(Mother)
 MFO 3
 
 Thank you.
+
 8:04 AM
 You removed the pinned message.
 8:28 AM
@@ -11279,6 +11618,7 @@ Branch: B1652 Baguio City IV (Mother)
 Bm Access
 
 Thank you.
+
 Andy Palino
 Today at 10:28 AM
 Andy Palino
@@ -11296,6 +11636,7 @@ Branch: B1652 Baguio City IV(Camp 3 Satellite)
 MFO 4
 
 Thank you.
+
 1:49 PM
 Christopher De Guzman
 Today at 1:49 PM
@@ -11314,6 +11655,7 @@ Branch: B1764 La Trinidad 2
 MFO 3
 
 Thank you.
+
 
 Mon 5:20 PM
 Christopher De Guzman
@@ -11335,6 +11677,7 @@ Branch: B1674 La Trinidad 2
 
 
 Thank you.
+
 Mon 6:01 PM
 You replied to Christopher De Guzman
 Yesterday at 6:01 PM
@@ -11358,6 +11701,7 @@ Branch: B1389 Agoo II
 ABH Access
 
 Thank you.
+
 You replied to John Barata
 Yesterday at 6:45 PM
 ok na sir..
@@ -11383,9 +11727,8 @@ Region: 79
 Area: Benguet 2
 Branch: B1674 La Trinidad 2
 
-
-
 Thank you.
+
 You replied to Christopher De Guzman
 Yesterday at 8:36 PM
 nasa 1674 ka na po sir..
@@ -11418,6 +11761,7 @@ Recommended by: Joe Pacz Aldeosa
 Designation: AA
 
 Thank you.
+
 7:12 AM
 Honey Leah Tejano
 Today at 7:12 AM
@@ -11437,6 +11781,7 @@ MFO2
 
 
 Thank you.
+
 Honey Leah TejanoToday at 7:13 AM
 Honey Leah Tejano
 Good morning po sir
@@ -11455,6 +11800,7 @@ MFO1
 
 
 Thank you.
+
 Loida Galate
 Today at 7:28 AM
 Loida Galate
@@ -11477,4 +11823,3 @@ Branch: B0792 Baguio City II(Mother)
 MFO 3
 
 Thank you.
-
